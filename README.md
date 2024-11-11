@@ -8,5 +8,7 @@
 - :speech_balloon: Acredito que umas das formas de aprender é compartilhando conhecimento
 
 
+![image](https://github.com/user-attachments/assets/d4cb1d74-5564-4858-8c10-3236a161909c)
+
 
 [![@rayanepimentel's Holopin board](https://holopin.me/rayanepimentel)](https://holopin.io/@rayanepimentel)
